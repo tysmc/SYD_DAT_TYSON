@@ -1,1 +1,0 @@
-# SYD_DAT_TYSON
